@@ -1,4 +1,4 @@
-<h1> <img  style="align-item" :"center" src="https://graph.org/file/b0825ba6490d2aa6a6afd.jpg" width="50px" height="60%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 🦋⃟ ᴠ‌ɪ‌ᴘ‌ 🇴 🇽 𝐘 𝐆 𝐄 𝐍⃝⃝⃪⃕🥀🦋‌•─‌⃛≛⃝🦅 </h1>
+<h1> <img  style="align-item" :"center" src="https://graph.org/file/b0825ba6490d2aa6a6afd.jpg" width="50px" height="60%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 🦋⃟ ᴠ‌ɪ‌ᴘ‌ .ᷟʝ̶➥𝐎ғғɪᴄɪᴀʟ ̶꯭𝅥ͦ𝆬💘 ̶꯭𝅥ͦ𝆬𝐔𝚂ᴇʀᴅᴇᴀ𝐃 ⃪͢🔥᪵᪳❰⎯꯭ ꯭ꭗ🥀🦋‌•─‌⃛≛⃝🦅 </h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
  -->    <img align="middle" src="https://profile-counter.glitch.me/PRADHAN474/count.svg" />
